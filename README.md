@@ -60,16 +60,16 @@
  * [Itunes Link](https://itunes.apple.com/us/app/kissing-tips/id476295398?mt=8)
  
 ## TrueSexFacts
-[Itunes Link](https://itunes.apple.com/us/app/true-sex-facts/id476295116?mt=8)
+* [Itunes Link](https://itunes.apple.com/us/app/true-sex-facts/id476295116?mt=8)
 
 ## FunnyTrivia
-[Itunes Link](https://itunes.apple.com/us/app/funny-trivia/id476294465?mt=8)
+* [Itunes Link](https://itunes.apple.com/us/app/funny-trivia/id476294465?mt=8)
 
 ## BogusFacts
-[Itunes Link](https://itunes.apple.com/us/app/bogus-facts/id483526685?mt=8)
+* [Itunes Link](https://itunes.apple.com/us/app/bogus-facts/id483526685?mt=8)
 
 ## FruitAndBasket
-[Itunes Link](https://itunes.apple.com/us/app/fruits-basket/id523483441?mt=8)
+* [Itunes Link](https://itunes.apple.com/us/app/fruits-basket/id523483441?mt=8)
 
 ## BROCCITY
 * Broc City is a social network for professionals and amateurs of the Flea, empty granaries word bargain hunters. 
